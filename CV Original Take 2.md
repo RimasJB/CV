@@ -1,7 +1,8 @@
+
 CV w/ Edits(6)
 Rimas Blekaitis
 301-467-8937
-[rimasjb@yahoo.com][1]
+rimasjb@yahoo.com
 
 
   
@@ -71,7 +72,7 @@ I was just about to ask when I could call again when her pale image vanished and
 Out on Tremaine avenue, a bus rounded the curve past the Mobil and, since it looked empty enough, I caught it. The bus driver opened the front door but held his hand out to stop me getting on.  He pointed to the rear.  “Get on in the back,” he said.  “The ride is free.”  All I could see were his eyes above his surgical mask, but in them was the same look I had seen in Lisa’s eyes: fear, fatigue, and wariness.  It was as if we were alone in the same monster movie for  there was no else on that road and no sign that there ever would be. 
 There were, however,  two people already on the bus.  The first was a homeless man.  He was sprawled out on one of the sideways facing benches, feet propped up on a large suitcase in the aisle that probably contained all he still owned in this world, one arm draped over his fold up walker.  Another man sat quietly near the middle door, his skin a kind of light brown with a sheen of gray over it as if an angel of death wasn’t sure whether or not it was time for him to go just yet, so it was going to just hover around for a bit.  I tried to sit as far forward as I could before I hit the taped off area ten feet behind the driver.  I took out my sanitizer and wiped my hands and somehow this caused the grey-skin guy to startle awake and make a kind of chortling, snorting sound.  He looked briefly panicked, as if he had missed his stop, then settled into a stare.  That chortling sound was enough to get me off that bus as soon as we hit the city limits.  I wondered how that guy with the walker would manage that suitcase of his.  Maybe he had some stories to tell.   Maybe another time, I thought, when it would be safe for people to talk again.
 I walked for a few minutes in the street itself and had made it almost to the crest of the first hill when a woman appeared over its edge, heading toward me.  She was an elegant woman with dark, luxuriant hair and an aristocratic face, wearing only a slip and a pearl necklace.  She held a single high-heeled shoe in one hand, while with the other hand, she was trying to get the other shoe off even as she skipped and ran ahead.  I raised my hand to get her attention, but she ran past as if she couldn’t even see me.   A man who looked to be in his early forties came jogging breathlessly up the hill after her.  He could’ve been her husband - he was certainly of her class - but then again, he could have been anything else.  He looked vaguely familiar, like a celebrity whose name was now escaping me.  He wore an impatient, rather than angry, look.  He waved to me as he went past and said, “She gets like this sometimes.”
-“During a plague you mean?”  I said.  I heard them shouting at each other when he finally caught her halfway up the block.  “Get your hands off me...honey you don’t understand...stay away, you’re a horrible person...look I didn’t mean to say it, I didn’t mean it….” I saw her take a swing and miss with one of the shoes and for a moment I was caught up in their little drama.  I began to move in closer to hear and see how the familiar ebb and flow would play out, but I stopped myself.  I’d never had that conversation with anyone wearing pearls in the middle of a deserted street, ::and it:: didn’t seem right in that moment to intrude on theirs, so I moved on.  Life on the empty avenue was beginning to resemble an arcade ride through a long dark tunnel.   
+“During a plague you mean?”  I said.  I heard them shouting at each other when he finally caught her halfway up the block.  “Get your hands off me...honey you don’t understand...stay away, you’re a horrible person...look I didn’t mean to say it, I didn’t mean it….” I saw her take a swing and miss with one of the shoes and for a moment I was caught up in their little drama.  I began to move in closer to hear and see how the familiar ebb and flow would play out, but I stopped myself.  I’d never had that conversation with anyone wearing pearls in the middle of a deserted street, and it didn’t seem right in that moment to intrude on theirs, so I moved on.  Life on the empty avenue was beginning to resemble an arcade ride through a long dark tunnel.   
 I had gone another three blocks before a police car appeared.  It pulled over and the officer inside asked me what I was doing.  “You might want to go a bit further up the street,” I said, pointing.  “I think there’s some trouble up there.”
 “That’s not what I asked you.  What is your business out here?”
 “I was driving my wife crazy,” I decided.  “I had to get out of her way.  I’m not going anywhere in particular.”  
@@ -105,5 +106,3 @@ When I crossed the bridge over the creek I was suspended high above what was not
 
 
 
-
-[1]:	mailto:rimasjb@yahoo.com

@@ -1,7 +1,11 @@
-CV
+
+ of original version from April
 Rimas Blekaitis
 301-467-8937
-[rimasjb@yahoo.com][1]
+rimasjb@yahoo.com
+
+Link to doc in google: https://docs.google.com/document/d/1pdJYat84o4UZY66IKy\_04XIaDvuAMkDBWTVeVYgFqmk/edit?usp=sharing
+
 
 
   
@@ -103,5 +107,3 @@ When I crossed the bridge over the creek I was suspended high above what was not
 
 
 
-
-[1]:	mailto:rimasjb@yahoo.com
